@@ -2,6 +2,9 @@
 ## (working title)
 ### Written by, Lucid D.
 
+[YouTube Video](https://www.youtube.com/watch?v=pawZhe__Z5s)
+
+
     Yesterday morning
     I was easing on down the road
     Dreaming of satisfaction
